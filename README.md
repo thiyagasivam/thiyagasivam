@@ -4,7 +4,7 @@ Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-912
 Web Developer and Digital Marketing
 -----------------------------------
 
-I am a professional with 4 years of experience in the web developer/Digital Marketing industry. I am always looking for a new challenge and have a passion for storytelling and visualizing and executing innovation. The “secret” behind my success is that I love my job and I work really hard. My experience and skills cover: - Site audit & strategy development - Keyword research - On-page/off-page recommendations - Link generation strategies and deployment - Social Media Marketing - Knowledge of web development, Social Media, and Blogging platforms.
+I am a professional with 7 years of experience in the web developer/Digital Marketing industry. I am always looking for a new challenge and have a passion for storytelling and visualizing and executing innovation. The “secret” behind my success is that I love my job and I work really hard. My experience and skills cover: - Site audit & strategy development - Keyword research - On-page/off-page recommendations - Link generation strategies and deployment - Social Media Marketing - Knowledge of web development, Social Media, and Blogging platforms.
 
 *   🌍  I'm based in Chennai
 *   ✉️  You can contact me at [thiyagasivam@gmail.com](mailto:thiyagasivam@gmail.com)### Skills<p align="left">
